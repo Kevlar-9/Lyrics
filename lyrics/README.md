@@ -1,1 +1,1 @@
-a template of my favourite song's lyrics 
+a template of my favourite song's lyrics.
